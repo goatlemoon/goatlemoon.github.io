@@ -1,2 +1,1 @@
-# goatlemoon.github.io
-# goofy ass ninjas always bluffin (bluff)
+# goofy ahh ninjas always bluffin (bluff)
